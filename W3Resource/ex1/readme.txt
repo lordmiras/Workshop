@@ -1,0 +1,1 @@
+Exercise nr 1. from https://www.w3resource.com.
